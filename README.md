@@ -2,6 +2,14 @@
 
 
 
+![KENNETH ADUTWUM](https://github.com/Kwamay/Kwamay/assets/69603174/fc494fcb-b3ba-4a4b-af85-e7b495af8e26)
+
+
+
+
+
+
+
 **About me**: I am a problem solver at the core, with excellent communication and collaboration skills and capable of working in a team of different people from different cultures while being both formal and professionally informal. I am determined, focused and disciplined but of course I know when it's time to relax and have a beer with a friend! 🍻 
 
 <br />
