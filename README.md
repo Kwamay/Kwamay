@@ -3,7 +3,7 @@
 ### Hi there 👋, my name is Kwamay
 
 
-**About me**: I am a problem solver at the core, with excellent communication and collaboration skills and capable of working in a team of different people from different cultures while being both formal and professionally informal. I am determined, focused and disciplined but of course I know when it's time to relax and
+**About me**: I am a problem solver at the core, with excellent communication and collaboration skills, and capable of working in a team of different people from different cultures while being both formal and professionally informal. I am determined, focused, and disciplined but of course, I know when it's time to relax and have fun with friends.
 
 
 <br />
