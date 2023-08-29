@@ -2,11 +2,11 @@
 
 
 
-**About me**: I am a problem solver at the core, with excellent communication and collaboration skills and capable of working in a team of different people from different cultures while being both formal and professionally informal. I am determined, focused and disciplined but of course I know when it's time to relax and have a beer with a friend! 🍻 
+**About me**: I am a problem solver at the core, with excellent communication and collaboration skills and capable of working in a team of different people from different cultures while being both formal and professionally informal. I am determined, focused and disciplined but of course I know when it's time to relax and have a beer with a friend! 
 
 <br />
 
-<img align="right" alt="GIF" src="./animation.gif" width="500" height="350" />
+<img align="right" alt="GIF" src="animation.gif" width="500" height="350" />
 
 - 💼 I am available for hire.
 - 🌱 I’m currently studying at [microverse.org](https://www.microverse.org/?grsf=swf84s)
