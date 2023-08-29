@@ -1,4 +1,4 @@
-![KENNETH ADUTWUM](https://github.com/Kwamay/Kwamay/assets/69603174/fc494fcb-b3ba-4a4b-af85-e7b495af8e26)
+![KENNETH ADUTWUM (2)](https://github.com/Kwamay/Kwamay/assets/69603174/eff39927-4ccd-4212-9de1-d10e5c234088)
 
 ### Hi there 👋, my name is Kwamay
 
